@@ -5,5 +5,7 @@
 
 ### 🔗 Links:
 
+### 🪙 $SERENA:
+
 ---
 Serena 💖 2025 - Present
